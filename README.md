@@ -1,2 +1,2 @@
-## Senior WordPress Developer
+## Senior Software Developer
 🇧🇷 Curitiba, PR, Brazil

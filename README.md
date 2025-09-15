@@ -1,2 +1,2 @@
-## Senior Software Developer
+## Development Team Lead
 🇧🇷 Curitiba, PR, Brazil
